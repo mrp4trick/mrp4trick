@@ -116,9 +116,9 @@ Here are some ideas to get you started:
 
 </p>
 
-                                                💻 closing 💻
+### closing👋👋
 
-<p align="center"><img src="https://thumbs.gfycat.com/GoodnaturedFondGaur-size_restricted.gif" alt="Synthwave" height="300" width="500"></p>
+<p><img src="https://thumbs.gfycat.com/GoodnaturedFondGaur-size_restricted.gif" alt="Synthwave" height="300" width="500"></p>
 
 </p>
 
